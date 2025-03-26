@@ -6,7 +6,7 @@
 
 
 ## 🔴 시연 동영상
-> 
+> https://youtu.be/qNR1E-U0Hqg?feature=shared  
 
 ## 🚀 프로젝트 소개
 
