@@ -6,7 +6,9 @@
 
 
 ## 🔴 시연 동영상
-> https://youtu.be/qNR1E-U0Hqg?feature=shared  
+> https://youtu.be/qNR1E-U0Hqg?feature=shared  (메인영상)  
+> https://youtube.com/shorts/Gx_3bMvIcTw (메인 영상의 테두리가 짤린 부분이 있어서 추가적으로 핸드폰 카메라 영상입니다.)
+
 
 ## 🚀 프로젝트 소개
 
